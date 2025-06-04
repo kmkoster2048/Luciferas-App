@@ -39,4 +39,4 @@ I am always looking for new challenges and collaborations that can leverage and 
 
 ## Connect with me
 
-<p align="center">🔗 LinkedIn: <a href="https://www.linkedin.com/in/koen-koster-professional/" target="_blank">Koen Koster</a> Email: kmkoster2025@outlook.com</p>
+<p align="center">🔗 LinkedIn: <a href="https://www.linkedin.com/in/koen-koster-professional/" target="_blank">Koen Koster</a> Email: kmkoster2028@outlook.com</p>
